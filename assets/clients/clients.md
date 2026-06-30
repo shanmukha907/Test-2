@@ -1,1 +1,1 @@
-Here are all clients icons or Logos
+Here are all clients icons or Logos (website)
